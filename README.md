@@ -1,3 +1,5 @@
+# thông tin cuộc thi 
+https://tapchidhhs.vn/tin-tuc/thong-bao-ve-viec-chuc-cuoc-thi-sinh-vien-nghien-cuu-khoa-hoc-lan-thu-15-nam-hoc-2025-2026
 # Nghien-cuu-khoa-hoc
 Tài liệu nghiên cứu khoa học
 
